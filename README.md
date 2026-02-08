@@ -11,3 +11,5 @@
 ⁠♡ #-1 Shelly Lover Guys Trust !!
 
 ⁠♡ Yes this is short but when i'm not busy , i might do some changes ok guys ? ok !
+
+![](https://cdn.discordapp.com/attachments/1066762081359122534/1470068603188412589/Untitled35_20260208224611.png?ex=6989f393&is=6988a213&hm=c2d45cd00331d7ac73c7a372f11de84f932f936bf5525a05a066f860cdc8a493&)
