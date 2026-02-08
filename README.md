@@ -3,11 +3,11 @@
     ⁠♡ Not usually online . Sometimes i may be on but i'll be on island so yes !! 
 
 ⁠♡ C+H very freely don't be shy ily who C+H with me and i'm gonna follow you home ദ്ദി(˵ •̀ ᴗ - ˵ ) ✧
-
-
+ 
+ 
 ︶  ゛ " Teamwork makes the dream work! "  🐚
-
-
+ 
+ 
 ⁠♡ #-1 Shelly Lover Guys Trust !!
 
 ⁠♡ Yes this is short but when i'm not busy , i might do some changes ok guys ? ok !
